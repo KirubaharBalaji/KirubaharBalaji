@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on developing my core Skills and improving my gaming skills<br>I'm looking forward to developing more games and projects<br>I'm looking to help many people with my skills in programming, gaming, and more<br>I'm currently learning everything about esports and developing<br>Ask me Anything on IG, Discord<br>Ping me on Discord for some Gaming or Fun-Talks Discord:<br>IG::__kirubahar__<br>Discord: VorteX#5386
+I'm currently working on developing my core Skills and improving my gaming skills<br>I'm looking forward to developing more games and projects<br>I'm looking to help many people with my skills in programming, gaming, and more<br>I'm currently learning everything about esports and developing<br>Ask me Anything on IG, Discord<br>Ping me on Discord for some Gaming or Fun-Talks Discord:<br>IG: __kirubahar__ <br>Discord: VorteX#5386
 
 
 ## 🌐 Socials:
