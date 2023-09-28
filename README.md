@@ -27,7 +27,7 @@ I'm currently working on developing my core Skills <br>I'm looking forward to de
 [![](https://visitcount.itsvg.in/api?id=KirubaharBalaji&icon=5&color=8)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/Kirubahar Balaji) 
+  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/kirubaharbalaji) 
 
   
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
