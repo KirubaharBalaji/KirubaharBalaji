@@ -3,7 +3,7 @@ I'm currently working on developing my core Skills <br>I'm looking forward to de
 
 
 ## 🌐 Socials:
-[![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](htttps://discord.gg/https://discord.gg/5dEEAyGgfY)(https://discord.com/users/576874456895717398)
+[![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.com/users/576874456895717398)
 <br>
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/__kirubahar__) 
 <br>
