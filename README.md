@@ -23,9 +23,6 @@ I'm currently working on developing my core Skills <br>I'm looking forward to de
 ### ✍️ Random Dev Quote
 ![](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=tokyonight)
 
-### 😂 Random Dev Meme
-<img src="https://random-memer.herokuapp.com/" width="512px"/>
-
 ---
 [![](https://visitcount.itsvg.in/api?id=KirubaharBalaji&icon=5&color=8)](https://visitcount.itsvg.in)
 
