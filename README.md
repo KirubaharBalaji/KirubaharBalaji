@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on developing my core Skills <br>I'm looking forward to developing more more and projects<br>I'm looking to help many people with my skills in programming, gaming, and cyberworld.<br>I'm currently learning everything about esports and exploring recent trends in cybersecurity <br>
+I'm currently working on developing my core Skills.<br>I'm looking forward to developing more and more projects.<br>I'm looking to help many people with my skills in programming, gaming, and cyberworld.<br>I'm currently learning everything about esports and exploring recent trends in cybersecurity.<br>
 
 
 ## 🌐 Socials:
